@@ -1,0 +1,3 @@
+curio
+MARKUS 
+14 July 2026  13:01:03
